@@ -8,6 +8,6 @@ Ready to transform your kitchen into a premium ice cream parlor? Dive into our c
 
 ✨ **Get ready to spin your way to ice cream bliss!** ✨
 
-🎯 **[🍦 Browse All Delicious Recipes →](./Best_Ninja_Creami_Ice_Cream_Recipes.md)**
+🎯 **[🍦 Browse All Delicious Recipes →](Best_Ninja_Creami_Ice_Cream_Recipes.md)**
 
 Whether you're craving creamy classics, protein-powered scoops, or wild flavor adventures, your perfect frozen treat awaits just one click away!
