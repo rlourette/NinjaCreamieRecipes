@@ -94,8 +94,8 @@ This top-rated Ninja Creami chocolate ice cream is rich, creamy, and easy to mak
 This Ninja Creami chocolate ice cream recipe uses just two simple ingredients: chocolate milk and heavy cream. It has the same perfect texture and creamy flavor of traditional chocolate ice cream with minimal effort (plus a lot less sugar!).
 
 ### Ingredients
-- 1 cup chocolate milk
-- 1/2 cup heavy cream
+- 1 3/4 cup chocolate milk (I prefer Fairlife chocolate milk because it has less sugar and more protein than other brands)
+- 2 tbsp heavy cream
 
 ### Instructions
 1. In a mixing bowl, combine the chocolate milk and heavy cream. Stir well until fully combined.
